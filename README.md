@@ -1,2 +1,2 @@
 # Hello-Universe-
-Hello Universe (in Multiple Languages);
+Hello Universe (in Languages i know lel);
